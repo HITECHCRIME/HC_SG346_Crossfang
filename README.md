@@ -67,6 +67,7 @@ make it or take it, it's such an ordeal
 being fallen from grace i can't pick it apart
 i'm no longer able to tell you what's real 
 
+[bridge out]
 find me among wolves when sheep are asleep
 preaching to the choir what you truly believe
 fill all my thoughts with what i dream
