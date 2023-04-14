@@ -22,12 +22,63 @@ Description.
 ## Lyrics
 
 ```
+[intro echo lyrics]
+
+ooooo
+
+blade in her hands etchin' signs in my faith
+taking what life gave before meeting death
+i swear I'm done with this pray for me witch
+
+[chorus]
+
+blade in her hands etchin' signs in my faith
+taking what life gave before meeting death
+i swear I'm done with this pray for me witch
+see me as I saw my corpse on the end                     /// on the bend
+
+eeeey yeeea
+
+[bridge]
+
+circling dark vultures be ready to bury me
+i'm teasing internal fake visions of hope                - teasin' n tellin'
+certain's averted be ready to bury me
+
+[verse 1]
+
+i'm testing again with my visions at fault
+see how I fallen prey to the lost soul
+somewhat unseen I don't pray any better
+i don't see the world at all                             /// I don't say it's worth at all
+
+gasping at pain
+ooooooh nooooooo
+
+[chorus]
+
+blade in her hands etchin' signs in my faith
+taking what life gave before meeting death
+i swear I'm done with this pray for me witch
+see me as I saw my corpse on the end
 
 
-I swear I'm not done with this
-Pray for me witch as I salt on my corpse
-Circling dark vultures be ready to bury me
-I'm teasing to them fake visions of hope 
+---------------------------------------------------------------------
+
+
+blade in her hands etchin' signs in my faith
+taking what life gave before meeting death
+i swear I'm done with this pray for me witch
+see me as I saw my corpse on the end
+
+circling dark vultures be ready to bury me
+i'm teasing internal fake visions of hope
+certain's averted be ready to bury me
+
+i'm testing again with my visions at fault
+see how I've fallen the prey to the soul
+somewhat unseen I don't pray any better
+i don't say it's worth at all
 
 Ready to go
 
@@ -51,61 +102,11 @@ got a drip drip drip on a thicc witch
 full lock - rage is taking all the reigns bitch
 body is a stock, twitch twitch twitch
 venom pushin out the corpse
-
 succubus fangs on the cross 
 with the neck get these hands outta the way
 stretch it your wretched i'll suck on your face 
 
 https://www.youtube.com/watch?v=lQpm1UhyO4k
-
-Inspiration Witchhouse 40k Gargoyle
-
-
-Blade in her hands etchin' signs in my faith
-Taking what life gave before meeting death
-I swear I'm done with this pray for me witch
-
-Blade in her hands etchin' signs in my faith
-Taking what life gave before meeting death
-I swear I'm done with this pray for me witch
-See me as I saw my corpse on the end
-
-Circling dark vultures be ready to bury me
-I'm teasing internal fake visions of hope                           - teasin' n tellin'
-Certain's averted be ready to bury me
-I'm testing again with my visions at fault
-See how I fallen prey to the lost soul
-Somewhat unseen I don't pray any better
-I don't see the world like whole
-
-I don't say it's worth at all
-
-Gasping at pain
-
-XXXXX
-
-Blade in her hands etchin' signs in my faith
-Taking what life gave before meeting death
-I swear I'm done with this pray for me witch
-See me as I saw my corpse on the bend
-
-
-
-
-
-blade in her hands etchin' signs in my faith
-taking what life gave before meeting death
-i swear I'm done with this pray for me witch
-see me as I saw my corpse on the end
-
-circling dark vultures be ready to bury me
-i'm teasing internal fake visions of hope
-certain's averted be ready to bury me
-
-i'm testing again with my visions at fault
-see how I've fallen the prey to the soul
-somewhat unseen I don't pray any better
-i don't say it's worth at all
 
 
 ```
