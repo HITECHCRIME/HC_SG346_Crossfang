@@ -69,7 +69,7 @@ i'm no longer able to tell you what's real
 
 [bridge out]
 find me among wolves when sheep are asleep
-preaching to choir what i truly believe
+preaching to choir, in dusk i truly believe
 fill all my thoughts with fallacies, dream
 to turn it around and finally feel 
 
