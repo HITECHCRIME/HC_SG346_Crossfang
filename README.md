@@ -25,7 +25,6 @@ Description.
 [intro echo lyrics]
 
 ooooo
-
 blade in her hands etchin' signs in my faith
 taking what life gave before meeting death
 i swear I'm done with this pray for me witch
@@ -48,19 +47,25 @@ certain's averted be ready to bury me
 [verse 1]
 
 i'm testing again with my visions at fault
-see how I fallen prey to the lost soul
-somewhat unseen I don't pray any better
+see how i've fallen prey to the soul
+somewhat unseen i don't pray any better
 i don't see the world at all                             /// I don't say it's worth at all
 
-gasping at pain
-ooooooh nooooooo
+gasping at pain ooooooh
+oooooh nooooooo
 
 [chorus]
 
 blade in her hands etchin' signs in my faith
 taking what life gave before meeting death
-i swear I'm done with this pray for me witch
-see me as I saw my corpse on the end
+i swear i'm done with this pray for me witch
+see me as i saw my corpse on the end
+
+[verse 2]
+make it or take it, it's such an ordeal
+fallen from grace i truly can't pick it apart
+no longer can tell you what's real 
+find me among wolves when sheep are 
 
 
 ---------------------------------------------------------------------
