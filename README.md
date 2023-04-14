@@ -1,6 +1,6 @@
-[cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
+[cover code] ![](crossfang-ytcover.png)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Crossfang
 
 **Listen now:** 
 
@@ -8,11 +8,11 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Crossfang / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:** MOTHNODE / **Lyrics:** MOTHNODE
 
-> **Beat:**
+> **Beat:** unknwnshi x ROOSEVELT
 
 > **Narrative Design:**
 
