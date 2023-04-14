@@ -64,14 +64,14 @@ see me as i saw my corpse on the end
 
 [verse 2]
 make it or take it, it's such an ordeal
-being fallen from grace i can't pick it apart
+fallen from grace i can't pick it apart
 i'm no longer able to tell you what's real 
 
 [bridge out]
 find me among wolves when sheep are asleep
-preaching to the choir what you truly believe
-fill all my thoughts with what i dream
-turn it around and make'em finally feel 
+preaching to choir what i truly believe
+fill all my thoughts with fallacies, dream
+to turn it around and finally feel 
 
 
 ---------------------------------------------------------------------
