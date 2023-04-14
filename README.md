@@ -1,4 +1,4 @@
-[cover code] ![](crossfang-ytcover.png)
+![](crossfang-ytcover.png)
 
 # MOTHNODE_ Crossfang
 
